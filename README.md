@@ -1,1 +1,0 @@
-# japanic.github.io
